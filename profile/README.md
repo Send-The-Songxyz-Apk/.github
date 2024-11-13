@@ -6,7 +6,7 @@ This article dives deep into what makes Send The Song.xyz APK a top choice for m
 
 ![image](https://github.com/user-attachments/assets/3a8762b8-d7f3-42f0-888f-ca80e87d68ca)
 
-## **Download Now**: [Send The Songxyz APK](https://apkfyp.com/send-the-songxyz.html)
+## **Download Now**: [Send The Songxyz APK](https://github.com/SendTheSong)
 
 ## Key Features of Send The Song.xyz APK: Redefining Music Sharing on Android
 
